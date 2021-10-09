@@ -1,1 +1,1 @@
-# Techdroid_1
+# This site collects plastic and e-waste from the users and we put that forward to our tie up companies , this way we are setting up a service based business model which follow the eco-friendly way of reusing and recycling processes.
